@@ -16,13 +16,14 @@ Zip code - 43650
 Phone Number:
 +60 11-16356488
 
-Safety Gear:
+Other Safety Products:
 Safety Helmet (Available)
 Safety goggles (Unavailable)
 Face Mask (Unavailable)
 Safety Cone (Available)
 
 Lifeline Brand:
+We Do customize lifeline length for customer
 Kaya lifeline
 Kstrong lifeline
 Tractel lifeline 

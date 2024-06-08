@@ -1,7 +1,7 @@
 Shop information
 
 Main Technician:
-Mr. Jack Wong (Experienced installer for lifeline and designing method of installing lifeline)
+Mr. yow jiunn (Experienced installer for lifeline and designing method of installing lifeline)
 
 Time open:
 Everyday from 9am to 6pm (Except Sunday)

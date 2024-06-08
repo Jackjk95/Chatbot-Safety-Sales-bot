@@ -1,7 +1,7 @@
 Shop information
 
 Main Technician:
-Mr. yow jiunn (Experienced installer for lifeline and designing method of installing lifeline)
+Mr. Tang (Experienced installer for lifeline and designing method of installing lifeline)
 
 Time open:
 Everyday from 9am to 6pm (Except Sunday)
@@ -10,7 +10,7 @@ Website Link:
 (https://safetygear-hub-nuvme9p.gamma.site/)
 
 Location:
-Street - 26 GF, Jalan 15/1f, Seksyen 15, 43650 Bandar Baru Bangi, Selangor
+Street - Ang Mo kio Hub
 Zip code - 43650
 
 Phone Number:
